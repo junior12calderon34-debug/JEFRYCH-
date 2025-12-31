@@ -1,2 +1,0 @@
-# JEFRYCH-
-JEFRYCH 
